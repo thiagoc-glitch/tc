@@ -1,2 +1,2 @@
 meu nome é thiago ⚫
-- - Estudante do Alura 🇧🇷
+- Estudante do Alura 🇧🇷
